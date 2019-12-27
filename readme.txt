@@ -1,2 +1,1 @@
-Here where the world is quiet
-Here where all trouble seems
+Dead winds' and spent waves' riot
